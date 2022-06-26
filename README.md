@@ -3,7 +3,7 @@ Merhaba!"Sixpon Cheat Sheet" benim yayınlarda, videolarda ve normal hayatımda 
 
 Sosyal medyada beni takip edebilirsiniz!
 -----------------------------------------
-Discord topluluğumuz: https://discord.gg/umHxrSKns7
-YouTube hesabım: https://youtube.com/sixpon
-İnstagram hesabım: https://www.instagram.com/ozgur.ozugurler
-Twitch hesabım: https://www.twitch.tv/sixpon
+-Discord topluluğumuz: https://discord.gg/umHxrSKns7
+-YouTube hesabım: https://youtube.com/sixpon
+-İnstagram hesabım: https://www.instagram.com/ozgur.ozugurler
+-Twitch hesabım: https://www.twitch.tv/sixpon
